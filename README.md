@@ -1,2 +1,4 @@
 # qaleradompet
-latihan aja ini 
+++latihan aja ini++
+ 
+SEMOGA BISA BERHASIL 
