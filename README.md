@@ -7,3 +7,6 @@ Updatean Ke 2 semoga bisa maju
 
 
 maju ke depan bukan mundur ke belakang 
+
+
+Good Luck
